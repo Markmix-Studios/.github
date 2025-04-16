@@ -29,12 +29,17 @@ We manage social media accounts for individuals and businesses, crafting strateg
 
 Our website provides the latest tech news, updates, and insights, ensuring our audience stays informed and inspired in the ever-evolving digital landscape.
 
+## Visit Us
+
+- **Website**: [Markmix Studios](https://www.markmixstudios.com)
+- **Online Radio Station**: [Markmix Radio](https://radio.markmixstudios.com)
+
 ## Contact Us
 
 Feel free to reach out to us for inquiries or collaborations:
 
 - **Email**: [bismark@markmixstudios.com](mailto:bismark@markmixstudios.com)
-- **WhatsApp**: [Contact Us on WhatsApp](https://wa.me)
+- **WhatsApp**: [Click here](https://wa.me/message/G7U62J64LUZOO1)
 - **Facebook**: [Markmix Studios](https://www.facebook.com/markmixstudios)
 - **Instagram**: [@markmix.studios](https://www.instagram.com/markmix.studios)
 - **YouTube**: [Markmix Studios](https://www.youtube.com/channel/UC4vWf9ZYN-U2hC0cs0pHAqA)
