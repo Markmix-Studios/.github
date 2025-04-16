@@ -40,7 +40,7 @@ Feel free to reach out to us for inquiries or collaborations:
 
 - **Email**: [bismark@markmixstudios.com](mailto:bismark@markmixstudios.com)
 - **WhatsApp**: [Click here](https://wa.me/message/G7U62J64LUZOO1)
-- **Facebook**: [Markmix Studios](https://www.facebook.com/markmixstudios)
+- **Facebook**: [Markmix Studios](https://www.facebook.com/markmixstudios1)
 - **Instagram**: [@markmix.studios](https://www.instagram.com/markmix.studios)
 - **YouTube**: [Markmix Studios](https://www.youtube.com/channel/UC4vWf9ZYN-U2hC0cs0pHAqA)
 
